@@ -1,5 +1,5 @@
 Welcome to Olivenson Bauvil's Portfolio
-Sales Representative Turned Developer | Coding Enthusiast | UCF Coding Bootcamp Attendee
+Sales Representative Turned Developer | Coding Enthusiast | UCF Coding
 
 I’m Olivenson Bauvil, but you can call me Oliver. After years of helping people in healthcare and excelling in sales as a top-performing Sales Representative at Best Buy, generating over $140K annually in revenue, I’ve shifted gears into the world of tech. This portfolio is a showcase of my journey into coding, where I am combining my passion for technology and learning with my customer-focused experience.
 
